@@ -1,0 +1,1 @@
+# Descricao-De-Imagens-Azure-IA
